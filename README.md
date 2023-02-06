@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sHannes Freitag
+- 👋 Hi, I’m @Hannes Freitag
 - 🌱 I’m currently studying Medicine at Charité Berlin
 - 📫 How to reach me: mail[at]hannesfreitag[dot]de
 - 
